@@ -1,5 +1,5 @@
-🌟 BrightMinds Kenya
-Tagline: “Lighting Paths to Success.”
+🌟 BrightMindKenya
+Motto: “Lighting Paths to Success.”
 Founder: Merab Mwenesi
 1️⃣ Vision Statement
 To empower learners across Kenya with accessible, high-quality educational and counselling resources that build not only knowledge but character and confidence
